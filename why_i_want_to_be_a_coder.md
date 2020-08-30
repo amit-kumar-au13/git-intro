@@ -1,0 +1,1 @@
+I am Amit Kumar ,I am just mca pursuing from anna university,i have depth knowledge about computer,i keep practising on coding,i am always try to learn new technology,thats why i want to become software engineer.
